@@ -1,0 +1,2 @@
+# Ko-Thu
+non-smoker
